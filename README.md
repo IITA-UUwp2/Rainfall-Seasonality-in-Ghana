@@ -1,0 +1,1 @@
+# Rainfall-Seasonality-in-Ghana
